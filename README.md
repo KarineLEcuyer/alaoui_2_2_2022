@@ -3,7 +3,7 @@
 Cette photo a été prise lors d'un photoshoot la session passée. 
 
 # Qui suis-je ? : 
-## Mon anniversaire est le 19 février et j'ai 17 ans. Mes passions sont *l'écriture*, *la lecture*, *la musique*, *la photo*, etc. Je suis en deuxième session TIM et je viens de l'école secondaire Curée-Antoine Labelle. Je souhaite travailler plus tard dans le marketing ou dans la création de site web. En plus de ça, j'aimerais faire de la photographie. Je suis quelqu'un d'assez organisée si je trouve la motivation de l'être. 
+Mon anniversaire est le 19 février et j'ai 17 ans. Mes passions sont *l'écriture*, *la lecture*, *la musique*, *la photo*, etc. Je suis en deuxième session TIM et je viens de l'école secondaire Curée-Antoine Labelle. Je souhaite travailler plus tard dans le marketing ou dans la création de site web. En plus de ça, j'aimerais faire de la photographie. Je suis quelqu'un d'assez organisée si je trouve la motivation de l'être. 
 
 
 
