@@ -1,3 +1,5 @@
+# alaoui_2_2_2022
+
 ## Bonjour, je m'appelle Ghita. Le ''Gh'' se prononce comme un R s'il vous plait 😭
 Voilà à quoi je ressemble : 
 ![moi](https://user-images.githubusercontent.com/93718412/152187730-88b969de-0acd-4ecd-afa9-66bf157e0211.jpg)
