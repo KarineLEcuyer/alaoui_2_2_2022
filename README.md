@@ -1,4 +1,4 @@
-# alaoui_2_2_2022
+# alaoui_ghita_02-02-2022
 
 ## Bonjour, je m'appelle Ghita. Le ''Gh'' se prononce comme un R s'il vous plait 😭
 Voilà à quoi je ressemble : 
