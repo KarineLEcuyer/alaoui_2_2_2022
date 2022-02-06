@@ -8,4 +8,5 @@ Voici deux références qui t'aideront :
  - [Insérer une photographie dans un fichier .md](https://github.com/KarineLEcuyer/H22_TIM_portfolio_consignes/blob/main/information_complementaire/inserer_photo.md)
 
 Bonne journée,
+
 Karine
